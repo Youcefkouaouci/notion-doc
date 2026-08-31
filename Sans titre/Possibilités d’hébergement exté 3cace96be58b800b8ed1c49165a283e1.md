@@ -1,0 +1,1 @@
+# Possibilités d’hébergement exté
